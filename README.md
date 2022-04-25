@@ -1,1 +1,0 @@
-# psrsonalWorld.github.io
